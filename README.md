@@ -1,0 +1,1 @@
+# dev_mobile_hibrido_2026.1
